@@ -1,6 +1,6 @@
 ### Olá, eu sou o Gabriel!
 
-- 😀 19 anos
+- 😀 20 anos
 - 📚 Cursando Análise e desenvolvimento de sistemas
 - 📧 gabrielnunescastro@gmail.com
 
